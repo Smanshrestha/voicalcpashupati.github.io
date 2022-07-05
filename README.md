@@ -1,1 +1,0 @@
-# voicalcpashupati.github.io
